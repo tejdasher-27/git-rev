@@ -1,0 +1,1 @@
+oka ne kimostu na yaibaaaaaaaa
